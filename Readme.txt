@@ -1,2 +1,2 @@
 Thanks for Visiting
-~LINK: ~   https://www.pratikchakraborty.in/
+~LINK:    https://www.pratikchakraborty.in/
